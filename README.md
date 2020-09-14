@@ -1,2 +1,2 @@
-# MaazHassan
+# Maaz
 2nd Mid
